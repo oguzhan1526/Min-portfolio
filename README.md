@@ -1,2 +1,2 @@
 # Min-portfolio
-GGG
+Gå till Wiki Page, där finns jag.
