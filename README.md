@@ -1,0 +1,2 @@
+# Min-portfolio
+GGG
